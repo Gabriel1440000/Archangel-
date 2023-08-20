@@ -1,2 +1,3 @@
-# Archangel-
-5* General/Warrior 
+Archangel-Gabriel 
+5*General 
+Warrior 🪖
